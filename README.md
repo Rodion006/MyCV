@@ -1,1 +1,1 @@
-# https://Rodion006.github.io/MyCV/
+# https://Rodion006.github.io/MyCV/CV
